@@ -8,8 +8,13 @@ For the last three years I've headed up all aspects of Communications at Ocado R
 [TikTok](https://www.tiktok.com/@ocado)
 [Instagram](https://www.instagram.com/ocadouk)
 
-## :page_facing_up: Featured Work
-Please see the uploaded PDFs for a variety of campaign summaries, media coverage and other content
+## :page_facing_up: Summaries of work and winning award entries
+Click below to view selected work samples:
+
+[Ocado Media Relations Entry](Ocado%20Media%20Relations%20Entry.pdf)
+[Ocado PR H1 2024](Ocado%20PR%20H1%202024.pdf)
+[Ocado Corporate PR 2024 Review](Ocado%20corporate%20PR%202024%20review.pdf)
+[Professional of the Year – Zoe Melarkey](Professional%20of%20the%20Year%20-%20Zoe%20Melarkey.pdf)
 
 ## :newspaper: Example Press Coverage
 [CEO interview in the Sunday Times (https://www.thetimes.com/business-money/companies/article/ocado-chief-weve-cut-prices-to-be-a-supermarket-for-all-80fj70v7n)
