@@ -11,4 +11,5 @@ Click below to view selected work samples:
 
 [Ocado Media Relations Entry (PDF)](Ocado%20Media%20Relations%20Entry.pdf) 
 [Ocado PR H1 2024 (PDF)](Ocado%20PR%20H1%202024.pdf) 
+[Ocado Consumer PR H2 (PDF)](Ocado%20consumer%20PR%20H2.pdf)
 [Ocado Corporate PR 2024 Review (PDF)](Ocado%20corporate%20PR%202024%20review)
